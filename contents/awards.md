@@ -1,13 +1,13 @@
-- National Scholarship of Graduate Student, 2024.
+(Rank by date)
 
-- First-prize Scholarship of CUMT, 2024.
+- G-Cross Award: Excellent Guidance (Finals Level), 2023.
 
-- First-prize Scholarship of CUMT, 2023.
+- Singapore Art Design Competition: Excellent Instructor Honor, 2023 & 2022.
 
-- Freshman Scholarship of CUMT, 2022.
+- Environmental Protection Art Creation Competition: Excellent Instructor, 2023.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Hongkong Contemporary Design Awards: Excellent Instructor, 2023.
 
-- First-prize Enterprise Scholarship of CUMT, 2020.
+- Chinese Scholarship Council: Chinese Government Award for Outstanding Self-financed Students Abroad, 2016.
 
-- First-prize Scholarship of CUMT, 2019.
+- American Psychological Association (APA): Interdivisional Mentoring Award, 2014.
